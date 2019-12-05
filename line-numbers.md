@@ -1,4 +1,4 @@
-#### 1 Si Ting wuz here.
+#### 1 Si Ting wuz here
 #### 2
 #### 3 Anna wuz here
 #### 4
